@@ -1,4 +1,4 @@
-![pexels-andrea-piacquadio-919436.jpg](attachment:33f14fc8-d03c-42fc-a51a-4bebba4e4bc5.jpg)
+![image](https://miro.medium.com/v2/resize:fit:943/1*e2RguMEZk5CpoGLZgn0csw.jpeg)
 
 **What is The Lifetime Value of Your Customers?**
 
